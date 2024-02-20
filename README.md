@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @ananyadwivedi808@gmail.com
 - 😄 Pronouns: She/Hers
-- ⚡ Fun fact: ...
+
 
 <!---
 Ananya6540/Ananya6540 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
