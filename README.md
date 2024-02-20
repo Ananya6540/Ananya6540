@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Ananya
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Web developement
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me @ananyadwivedi808@gmail.com
 - 😄 Pronouns: She/Hers
 
