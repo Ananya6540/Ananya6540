@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Ananya
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Web developement
-- 📫 How to reach me @ananyadwivedi808@gmail.com
+- 📫 How to reach me https://www.instagram.com/ananyadwivedi73
 - 😄 Pronouns: She/Hers
 
 
